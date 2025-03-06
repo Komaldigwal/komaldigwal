@@ -47,6 +47,5 @@
 ---
 
 🚀 **Let's Connect!**  
-📧 **Email:** [YourEmail@example.com](mailto:YourEmail@example.com)  
-🔗 **LinkedIn:** [Your LinkedIn](https://www.linkedin.com/in/your-profile)  
-🌎 **Portfolio:** [Your Website](https://yourwebsite.com)  
+📧 **Email:** [komaldigwal1998@gmail.com] 
+🔗 **LinkedIn:** [Your LinkedIn](https://www.linkedin.com/in/your-profile) 
