@@ -48,4 +48,4 @@
 
 🚀 **Let's Connect!**  
 📧 **Email:** [komaldigwal1998@gmail.com] 
-🔗 **LinkedIn:** [Your LinkedIn](https://www.linkedin.com/in/your-profile) 
+🔗 **LinkedIn:** [KOMAL DIGWAL](https://www.linkedin.com/in/komal-digwal-21327a35a/) 
